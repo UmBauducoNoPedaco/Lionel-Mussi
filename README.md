@@ -32,5 +32,12 @@ Praq escrever isso
 
 
 
+  ![](https://media1.tenor.com/m/59G2Ijvk5fUAAAAd/tropa-do-gordao.gif)
+
+
+
+
+
+
 
 👍​
